@@ -1,1 +1,1 @@
-# Edunet-Internship-Green-AI-
+# Edunet-Internship (Green AI)
